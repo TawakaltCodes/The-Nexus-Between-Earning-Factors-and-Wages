@@ -1,0 +1,1 @@
+# The-Nexus-Between-Earning-Factors-and-Wages
